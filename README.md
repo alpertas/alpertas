@@ -10,6 +10,7 @@
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: ...
 -->
+![](https://giphy.com/embed/VDB85YZsrqMXx3c7DE)
 ## Hi there, I'm Alper 👋
 
 ### 🔭 I’m currently working on
